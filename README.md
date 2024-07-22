@@ -1,10 +1,10 @@
 # Links
 Links to other stuff (when I'm too lazy to update my website)
 
-[Twitter](https://x.com/inkolore_)
-[Youtube vlogs](youtube.com/@inkoloreVlogs)
-[Instagram](instagram.com/inkolore_)
-[Website](inkolore.xyz)
+[Twitter](https://x.com/inkolore_)  
+[Youtube vlogs](youtube.com/@inkoloreVlogs)  
+[Instagram](instagram.com/inkolore_)  
+[Website](inkolore.xyz)  
 
 ## Substack
 [Home of my Substack](https://inkolore.substack.com/)
