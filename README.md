@@ -7,6 +7,8 @@ Links to other stuff (when I'm too lazy to update my website)
 [Website](inkolore.xyz)  
 
 ## Substack
+[![Substack Link](https://github.com/inkolore/Links/blob/main/SubstackLogo.png)](https://inkolore.substack.com/)
+
 [Home of my Substack](https://inkolore.substack.com/)
 Started in November 2023
 
