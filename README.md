@@ -30,8 +30,8 @@ Started in November 2023
 [III - Ever noticed that - May 2024](https://inkolore.substack.com/p/iii-ever-noticed-that-may-2024)  
 [IV - Ever noticed that - June 2024](https://inkolore.substack.com/p/iv-ever-noticed-that-june-2024)  
 [V - Ever noticed that - July 2024](https://inkolore.substack.com/p/v-ever-noticed-that-july-2024)  
-[VI - Ever noticed that - August 2024](https://inkolore.substack.com/p/vi-ever-noticed-that-august-2024)
-[VII - Ever noticed that - August 2024 (2nd)](https://inkolore.substack.com/p/vii-ever-noticed-that-august-2024) 
+[VI - Ever noticed that - August 2024](https://inkolore.substack.com/p/vi-ever-noticed-that-august-2024)  
+[VII - Ever noticed that - August 2024 (2nd)](https://inkolore.substack.com/p/vii-ever-noticed-that-august-2024)  
 
 
 
